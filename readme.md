@@ -1,0 +1,1 @@
+Hi! This is my network trace collage, inclduing some text, pictures, and introductions of the physcial places I chose.
